@@ -1,6 +1,9 @@
 # usaiptvm3uplaylist
 Get Free Usa iptv m3u Playlist 2020 American Channels.
 
+DOWNLOAD
+
+[LIST 1](https://google.com)
 
 USA iptv M3u playlist 2020: Free Updated iptv links and m3u lists
 IPTV free 2020 in m3u links urls and m3u lists formats we offer for free download are all daily updated and include all live TV channels and VoD, and compatible with all devices that support IPTV. Get access to free m3u iptv playlist whenever you like.

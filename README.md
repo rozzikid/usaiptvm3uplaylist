@@ -1,7 +1,7 @@
 # usaiptvm3uplaylist
 Get Free Usa iptv m3u Playlist 2020 American Channels.
 
-###DOWNLOAD
+## DOWNLOAD
 
 [LIST 1](https://www.up-4ever.org/2l2pflxb0qah)
 
